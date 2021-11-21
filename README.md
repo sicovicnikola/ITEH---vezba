@@ -1,1 +1,2 @@
 # ITEH---vezba
+Pomozi Boze
